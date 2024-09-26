@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @chloemintz
-- 👀 I’m interested in ... creating a digital portfolio, if you
+- 👀 I’m interested in ... creating a digital portfolio
 - 🌱 I’m currently learning ... HTML (easier means of coding for the non-stem majors)
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... well, I'm not yet sure
 - 📫 How to reach me ... cell, usually
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I have a twin brother
